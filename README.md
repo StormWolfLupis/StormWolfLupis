@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @StormWolfLupis
-- 👀 I’m interested in coding & ethical hacking.
+- 👀 I’m interested in Coding & Ethical Hacking.
 - 📫 How to reach me stormycanislupis@gmail.com
